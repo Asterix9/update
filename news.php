@@ -1,3 +1,11 @@
+Update v55|New update:
++ New stockings by Sempiterno
++ New hair for woman by Sempiterno
++ New tattoos by Candyevilz, Seaqueen, lucifer and Marta
++ New faceprints by Candyevilz
++ New eyebrowns for man by andruwu
++ New model of wings and added for males
++ New prints by SeaQueen, Marta, Candyevilz and Kaligollas<br>|https://board.meredian.io/uploads/monthly_2020_05/3DXvers55.jpg||||
 Update .37|New update:
 + New hair for woman
 + 2 new hair for man
