@@ -1,5 +1,5 @@
 Meredian anniversary|Event
-|https://board.meredian.io/uploads/monthly_2020_05/Meredian_birthday_client|https://board.meredian.io/topic/474-meredian-anniversary-event/|||
+|https://board.meredian.io/uploads/monthly_2020_05/Meredian_birthday_client.jpg|https://board.meredian.io/topic/474-meredian-anniversary-event/|||
 
 Update v55|New update:
 + New stockings by Sempiterno
