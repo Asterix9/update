@@ -1,4 +1,4 @@
-Meredian anniversary|Event
+Meredian anniversary|Event, CLICK for more details!
 |https://board.meredian.io/uploads/monthly_2020_05/Meredian_birthday_client.jpg|https://board.meredian.io/topic/474-meredian-anniversary-event/|||
 
 Update v55|New update:
