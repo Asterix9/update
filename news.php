@@ -26,9 +26,3 @@ Update|New update:
 + New face prints for man by Bionicle
 + New tattoos for woman by ManOf_Wisdom
 + New prints by SeaQueen<br>|https://attachments.f95zone.to/2020/05/654387_Small.png||||
-Creating Clothes|Meredian opens up the opportunity to create clothing and accessories in the game. The best designers can get reward - status on the forum and color nickname in the game. Details on the forum.|https://board.meredian.io/uploads/monthly_2020_04/1578442865_3DDesign.png.5428ad6586890d6c1b33829650b0a9f9.png|https://board.meredian.io/topic/334-creation-of-clothes-and-accessories/||||
-Update2|NEW Update. |https://board.meredian.io/uploads/monthly_2020_04/3DXupdate390.30.jpg||||
-Update|NEW Update. Piercing! Shoes Fix |https://attachments.f95zone.to/2020/02/571316_UpdSmall.png||||
-New Discord|New Discord|https://board.meredian.io/uploads/monthly_2020_02/Discord.png.41f9be32cde0efbb412239c385f6a7d6.png|https://discord.gg/uQPEazf||||
-New Forum Site|A forum has opened on the server. Now this is the main platform of community. The Discord server will be added later|https://attachments.f95zone.to/2020/01/547087_gettyimages-624878906-612x612.png|https://board.meredian.io/||||
-Recruiting|We are recruiting people who want to create prints, make-up, beards, brows and so on. If you are interested write to @Federal|https://cdn.discordapp.com/attachments/649951169095139332/658698661294899210/Recrut1.png|https://discord.gg/CnyPnaq||||
