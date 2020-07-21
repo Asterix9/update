@@ -1,3 +1,15 @@
+Update v56|New update v56
+man:
++ eyebrown  1  SempiTerno
++ tatto     8  JHEKHO, Andruwu, Cherry
++ facetatto 4  SempiTerno, CandyEviLZ, Cherry
+woman:
++ eyebrown  1  CandyEviLZ
++ tatto     10  JHEKHO, SempiTerno, CandyEviLZ, Cherry, Ghug, SeaQueen
++ facetatto 10  IvanaD, SempiTerno, CandyEviLZ, Cherry, SeaQueen
++ stoking   18  IvanaD, CandyEviLZ, 
+- prints    69  IvanaD, CandyEviLZ, Cherry, SeaQueen
+|https://board.meredian.io/uploads/monthly_2020_06/updatejuly.jpg|||||
 Meredian anniversary|Event, CLICK for more details!
 |https://board.meredian.io/uploads/monthly_2020_05/Meredian_birthday_client.jpg|https://board.meredian.io/topic/474-meredian-anniversary-event/||||
 Update v55|New update v55:
