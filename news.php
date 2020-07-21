@@ -1,5 +1,5 @@
 Update v56|New update v56
-Man:
+Man: <br>
 + Eyebrow 1 SempiTerno <br>
 + Tattoo 8 JHEKHO, Andruwu, Cherry <br>
 + Facetatto 4 SempiTerno, CandyEviLZ, Cherry <br>
