@@ -1,6 +1,6 @@
-Gratitude|Gratitude
+Gratitude|
 We receive many proposals for donations, it is valuable to us. We open such an opportunity for everyone. In addition, in gratitude you will receive thanks, colored nicknames. All details on site.
-|https://board.meredian.io/uploads/monthly_2020_08/Gr2.png.1c57042639321910bb6e002aa59a53cb.png|https://board.meredian.io/topic/568-donation/||||
+|https://board.meredian.io/uploads/monthly_2020_08/Gr3.png.b4958df30cc115af6d0753582a434972.png|https://board.meredian.io/topic/568-donation/||||
 Update v56|New update v56
 Man: <br>
 + Eyebrow 1 SempiTerno <br>
