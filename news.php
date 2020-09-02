@@ -1,6 +1,4 @@
-Gratitude|
-We receive many proposals for donations, it is valuable to us. We open such an opportunity for everyone. In addition, in gratitude you will receive thanks, colored nicknames. All details on site.
-|https://board.meredian.io/uploads/monthly_2020_09/client-V57.thumb.jpg.c785f440921d8125fbf0f52b0a3c79e0.jpg|https://board.meredian.io/topic/568-donation/||||
+
 Gratitude|
 We receive many proposals for donations, it is valuable to us. We open such an opportunity for everyone. In addition, in gratitude you will receive thanks, colored nicknames. All details on site.
 |https://board.meredian.io/uploads/monthly_2020_08/Gr3.png.b4958df30cc115af6d0753582a434972.png|https://board.meredian.io/topic/568-donation/||||
