@@ -1,4 +1,4 @@
-Tech Working|The server has problems with the provider, we are solving this problem right now. The server will temporarily run in slow mode, some functions may not work. We apologize for this incident. Anyone who get colored nicknames will receive compensation.|https://board.meredian.io/uploads/monthly_2020_09/tech.png.2b9f7b410dedfa2cd7e2516eac3420a9.png|||
+Tech Working|The server has problems with the provider, we are solving this problem right now. The server will temporarily run in slow mode, some functions may not work. We apologize for this incident. Anyone who get colored nicknames will receive compensation.|https://board.meredian.io/uploads/monthly_2020_09/Tach1.png.240423f5412cb0e54e69dfb91da67711.png|||
 Update|
 |https://board.meredian.io/uploads/monthly_2020_09/meredian-v57.png.8dd105c64756b30014f4941e60a876c1.png|||
 Gratitude|
