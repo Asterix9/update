@@ -1,4 +1,4 @@
-Tech Working|The server has problems with the provider, we are solving this problem right now. The server will temporarily run in slow mode, some functions may not work. We apologize for this incident. Anyone who get colored nicknames will receive compensation.|https://board.meredian.io/uploads/monthly_2020_09/Tach1.png.240423f5412cb0e54e69dfb91da67711.png|||
+2D and 3D Desginer|We work look for 2D and 3D Designer. Discord SempiTerno [MDC]SempiTerno#7496|https://board.meredian.io/uploads/monthly_2020_09/MEREDIAN-2-D-AND-3-D.jpg.039b5c18df178defc9aac68b2c2bc7c2.jpg|DISCORD.GG/uQPEazf||
 Update|
 |https://board.meredian.io/uploads/monthly_2020_09/meredian-v57.png.8dd105c64756b30014f4941e60a876c1.png|||
 Gratitude|
