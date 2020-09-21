@@ -1,4 +1,4 @@
-2D and 3D Desginer|We work look for 2D and 3D Designer. Discord SempiTerno [MDC]SempiTerno#7496|https://board.meredian.io/uploads/monthly_2020_09/MEREDIAN-2-D-AND-3-D.png.672bc5312c2cfa7cba14803f68824267.png|http://DISCORD.GG/uQPEazf||
+2D and 3D Desginer|We work look for 2D and 3D Designer. Discord SempiTerno [MDC]SempiTerno#7496|https://board.meredian.io/uploads/monthly_2020_09/MEREDIAN-2-D-AND-3-D.jpg.f7cd00c3577e681d3d552064726aab8e.jpg|http://DISCORD.GG/uQPEazf||
 Update|
 |https://board.meredian.io/uploads/monthly_2020_09/meredian-v57.png.8dd105c64756b30014f4941e60a876c1.png|||
 Gratitude|
